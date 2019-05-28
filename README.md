@@ -1,1 +1,1 @@
-# UI Developer 양은진입니다
+# UI Developer 양은진
